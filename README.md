@@ -1,4 +1,6 @@
-Tabletop Tangents is a storytelling game. It's fun use for practicing improvisation, use in conjunction with Dungeons and Dragons characters, and build your creativity and imagination. 
+Tabletop Tangents is a storytelling game coming soon to <img src="https://i.kickstarter.com/tq0sfld-kickstarter-logo-green.png?origin=static&sig=f4aHZ5ZiQhwZCgzBFzJqR3WIwCUT6jVw6mALfOHvmu0%3D" alt="Kickstarter" width="200"/>
+
+Use it for practicing improvisation, in conjunction with Dungeons and Dragons characters, and simply build your creativity and imagination. 
 
 It's easy to play!
 1. Draw a "prompt" card. The story you tell will be based on this opening line. 
